@@ -7,7 +7,7 @@
 
 _觉得有点意思的话 别忘了点个 ⭐_
 
-<a href="https://t.me/+LGKwlC_xa-E5ZDk9">
+<a href="https://t.me/+raL5ppEzDIFmZTY1">
     <img src="https://telegram.org/img/website_icon.svg" width="16" height="16" style="vertical-align: middle;">
     <span style="text-decoration: none; font-size: 12px; color: #0088cc; vertical-align: middle;">Telegram 交流群</span>
 </a>
